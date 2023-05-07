@@ -1,5 +1,5 @@
 ### Hi there 👋
-I am current studying ar CUHK🫡
+I am current studying at **CUHK**🫡
 <!--
 **barrywong1202/barrywong1202** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
